@@ -1,4 +1,4 @@
-### Hi there 👋 (<>>)
+### Hi there 👋
 **Zx-oOo-xK/Zx-oOo-xK** is a ✨ Coder lame ✨ love the concept of the school of ignorance !!!
 
 - 🔭 I’m currently working on my home
