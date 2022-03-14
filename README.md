@@ -12,6 +12,3 @@
 - 🌸🌸🌸 forget what you just watched 🌸🌸🌸
 
 ![Tux, the Linux mascot](https://thumbs.gfycat.com/HeavyLiquidAnnelid-size_restricted.gif)
-![Tux, the Linux mascot](https://thumbs.gfycat.com/AngelicConcreteHypsilophodon-size_restricted.gif)
-![Tux, the Linux mascot](https://thumbs.gfycat.com/AngelicConcreteHypsilophodon-size_restricted.gif)
-![Tux, the Linux mascot](https://thumbs.gfycat.com/QuickGenuineBluewhale-size_restricted.gif)
